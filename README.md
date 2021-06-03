@@ -13,7 +13,7 @@ This problem is around 02:30:00 in the video.
 
 If interest in my comments I invite you to read the following post in my blog:
 
-<T.B.D.>
+https://www.johncanessa.com/2021/06/04/count-construct/
 
 Remember that one of the best ways to learn is to read and experiment.
 In addition repetition helps a lot.
